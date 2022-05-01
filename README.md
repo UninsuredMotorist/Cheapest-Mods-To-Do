@@ -86,7 +86,7 @@ Can be a little tough to find the right bolts to fit into the tow hook slot, but
 4. Very likely get called a ricer, and be unable to talk back cus they're kinda right.
 
 ---
-If you do any of these best of luck, and be more careful than you think you should be or you'll want to throw a lot of things. Also, feel free to tag me if you post on IG [@aunins](https://www.instagram.com/uninsuredmotorist/) after doing them, love to see stuff like that.
+If you do any of these best of luck, and be more careful than you think you should be or you'll want to throw a lot of things. Also, feel free to tag me if you post on IG [@uninsuredmotorist](https://www.instagram.com/uninsuredmotorist/) after doing them, love to see stuff like that.
 
 
 ###### K out :)
